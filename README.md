@@ -1,4 +1,4 @@
-# Sony-Vegas-20-Pro
+# Sony Vegas 20 Pro
 
 Sony Vegas 20 Pro (reverse engineering) - Cracked version for public using. Instruction:
 
